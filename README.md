@@ -3,3 +3,5 @@ You can create issues in here to ask me questions (or ask why I don't give a fuc
 
 The Readme will be updated with questions if they are decent.
 There's a seperate list for all the questions made by sjw crying and bullshit/cancel culture crap people.
+
+And yes, I heavily dislike SJW people. Reality is the only arbiter of truth, not some made up fantasies.
